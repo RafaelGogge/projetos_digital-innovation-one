@@ -32,7 +32,7 @@ Como embaixador universitário na Digital Innovation One, estou sempre aprendend
 4. Abra um pull request.  
 
 ## Contato
-Estou sempre disposto a trocar ideias e buscar evolução nos projetos! Entre em contato pelo [LinkedIn]([https://linkedin.com](https://linkedin.com/in/rafael-g-500824316/).
+Estou sempre disposto a trocar ideias e buscar evolução nos projetos! Entre em contato pelo [LinkedIn]([https://linkedin.com](https://linkedin.com/in/rafael-g-500824316/)).
 
 ---
 
